@@ -1,4 +1,3 @@
-# My-Portfolio
 
 # 💫 About Me:
  As a fresher, I am seeking a role in a reputed organization where I can learn new skills, expand my knowledge, and leverage my<br> learnings, that encourages me. To get an opportunity where I can make the best of my potential and contribute to the organization's<br> growth.<br><br>🌱 I’m currently learning<br>
